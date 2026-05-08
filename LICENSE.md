@@ -1,4 +1,4 @@
-
+Enhance NordPass for macOS with updated NordPass for macOS Integration | emergency-access + secure-storage, the #1 integration. Includes emergency-access and secure-storage for a
 
 
 
